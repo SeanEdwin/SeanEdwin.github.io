@@ -1,2 +1,2 @@
-# SeanEdwin.github.io
+# Adelaide Krause - вк.
 Мой первый сайт
